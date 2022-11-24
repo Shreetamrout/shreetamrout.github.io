@@ -1,1 +1,0 @@
-# shreetamrout.github.io
